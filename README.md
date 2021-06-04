@@ -1,2 +1,0 @@
-# PropertyServices
-Property invertories UK
