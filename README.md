@@ -1,2 +1,2 @@
 # PropertyServices
-Professional property services business
+Property invertories UK
